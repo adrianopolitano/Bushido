@@ -1,2 +1,0 @@
-# Bushido
-droga samuraja
